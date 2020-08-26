@@ -1,0 +1,1 @@
+![Image of Yaktocat](https://lh3.googleusercontent.com/proxy/fpdg_qNJT5KYmR8CRXWazijRDpr2sH04xBOQKR91XKSJIDsLjkKmRZMdqk5PRIjfUgFVU0ZgNycTiCaNDMjN14ai1LlfZwF1iSck24pPsoRWWso1tJFec9lJXzHU9Q)
