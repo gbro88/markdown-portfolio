@@ -1,1 +1,5 @@
-Replace this with a list of your favorite things.
+What's my thing:
+* fun with Github
+* Note with Page
+* Note with issue
+* Pull request
